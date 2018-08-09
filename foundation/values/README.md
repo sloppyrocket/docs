@@ -5,15 +5,26 @@ _Wiki's such as these are living documents. If you want to improve anything; fee
 Important and lasting beliefs or ideals shared by the members of a culture about what is good or bad and desirable or undesirable. 
 
 1. Always aim for the highest possible good
-2. Be open, honest and transparant 
-3. Build the organisation you want to be a part of
-4. Your time is valuable, others their time is valuable
-5. If you see something you do not like, think of a way to improve it and act on it
-6. Don't compare yourself to others, compare yourself to who you were yesterday
-7. Get to know each other and each others work
-8. Be open, honest and transparant
-9. Collaborate
-10. No fake news
+
+If it felt easy then there is space to improve or improvise.
+
+2. Be open, honest and transparant.
+
+No fake news!
+
+3. Build the organisation you want to be a part of.
+
+If you see something you do not like, think of a way to improve it and act on it.
+
+4. Value your and others´ time.
+
+5. Don't compare yourself to others. 
+
+Compare yourself to who you were yesterday.
+
+6. Get to know each other and each others work.
+
+Then you can offer help or collaborate.
 
 
 
